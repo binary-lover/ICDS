@@ -1,9 +1,3 @@
-My apologies. You are absolutely right. I misunderstood your request and added details to the wrong policy. I am sorry for that frustrating experience.
-
-Here is the detailed information on the **Integrated Child Development Services (ICDS)** scheme as you requested.
-
-***
-
 ### A Deep Dive into the Integrated Child Development Services (ICDS)
 
 The **Integrated Child Development Services (ICDS)** is the Indian government's flagship program and one of the world's most extensive community-based initiatives for early childhood development. Launched on October 2, 1975, it was designed to address the interconnected cycle of malnutrition, morbidity, and mortality in young children and their mothers.
